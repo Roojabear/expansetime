@@ -1,0 +1,1 @@
+Magical items seek to act like characters. In a world of hero's and Villans the weapons and trinkets of these individuals become just as important the characters themselves. Think Zeus's thunderbolt or king Authers sword.
